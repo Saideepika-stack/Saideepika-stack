@@ -9,7 +9,7 @@ I’m a technical writer with a passion for simplifying complex information. Wit
 
 - 📍 Location: Bangalore
 - 🖊️ Current Role: Content writer
-- 📫 Contact: saideepika23@outlook.com
+- 📫 Contact: saideepika736@gmail.com
 
 ## 🗂️ Portfolio Structure
 
